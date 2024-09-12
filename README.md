@@ -1,8 +1,8 @@
 # 每日大乱斗最新地址发布页
 
-官网最新地址：（更新时间：2024/09/05）
+官网最新地址：（更新时间：2024/09/11）
 -
- 每日大乱斗最新官方地址：https://ddou2.com
+ 每日大乱斗最新官方地址：https://ddou3.com
 
  每日大乱斗永久地址(需科学上网)：https://mrdld.fun
 
@@ -17,15 +17,15 @@
 
 方法3:加入 每日大乱斗Telegram公告频道:https://t.me/mrdld_com/5
 
-方法4：加入 每日大乱斗微信扣扣粉丝群：https://ddou2.com/?path=/qun.html
+方法4：加入 每日大乱斗微信扣扣粉丝群：https://ddou3.com/?path=/qun.html
 
 近期热瓜攀升版：
 -
-高密砍人！山东高密小康河夜市发生恐怖砍人事件 被斩男子头颅被劈甩 现场视频曝光！https://ddou2.com/?path=/archives/139799/
+高密砍人！山东高密小康河夜市发生恐怖砍人事件 被斩男子头颅被劈甩 现场视频曝光！https://ddou3.com/?path=/archives/139799/
 
-每日大乱斗之【双马尾大赛】https://ddou2.com/?path=/archives/133919/
+每日大乱斗之【双马尾大赛】https://ddou3.com/?path=/archives/133919/
 
-伴郎团轮奸新娘 新婚之夜遭伴郎团轮奸调教 拍下大量不雅淫照小穴清晰可见 全网疯传！ https://ddou2.com/?path=/archives/138382/
+伴郎团轮奸新娘 新婚之夜遭伴郎团轮奸调教 拍下大量不雅淫照小穴清晰可见 全网疯传！ https://ddou3.com/?path=/archives/138382/
 
 常见问题：
 -

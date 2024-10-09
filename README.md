@@ -17,11 +17,11 @@
 
 方法3:加入 每日大乱斗Telegram公告频道:https://t.me/mrdld_com/5
 
-方法4：加入 每日大乱斗微信扣扣粉丝群：https://ddou5.com/?path=/qun.html
+方法4：加入 每日大乱斗微信扣扣粉丝群：https://www.mrdld3.fun/?path=/qun.html
 
 近期热瓜攀升版：
 -
-阿普生你在等我十分钟原视频曝光！怒江女的痴情，阿普生的绝望，最终阿普生扛下了所有！https://ddou5.com/?path=/archives/145847/
+阿普生你在等我十分钟原视频曝光！怒江女的痴情，阿普生的绝望，最终阿普生扛下了所有！https://www.mrdld3.fun/?path=/archives/145847/
 
 每日大乱斗之【双马尾大赛】https://ddou5.com/?path=/archives/133919/
 

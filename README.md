@@ -1,8 +1,8 @@
 # 每日大乱斗最新地址发布页
 
-官网最新地址：（更新时间：2024/10/19）
+官网最新地址：（更新时间：2024/10/29）
 -
- 每日大乱斗最新官方地址：https://www.mrdld3.fun
+ 每日大乱斗最新官方地址：https://mrdld4.fun
 
  每日大乱斗永久地址(需科学上网)：https://mrdld.fun
 
@@ -21,11 +21,11 @@
 
 近期热瓜攀升版：
 -
-阿普生你在等我十分钟原视频曝光！怒江女的痴情，阿普生的绝望，最终阿普生扛下了所有！https://www.mrdld3.fun/?path=/archives/145847/
+阿普生你在等我十分钟原视频曝光！怒江女的痴情，阿普生的绝望，最终阿普生扛下了所有！https://www.mrdld4.fun/?path=/archives/145847/
 
-每日大乱斗之【双马尾大赛】https://www.mrdld3.fun/?path=/archives/133919/
+每日大乱斗之【双马尾大赛】https://www.mrdld4.fun/?path=/archives/133919/
 
-伴郎团轮奸新娘 新婚之夜遭伴郎团轮奸调教 拍下大量不雅淫照小穴清晰可见 全网疯传！ https://mrdld3.com/?path=/archives/138382/
+伴郎团轮奸新娘 新婚之夜遭伴郎团轮奸调教 拍下大量不雅淫照小穴清晰可见 全网疯传！ https://mrdld4.com/?path=/archives/138382/
 
 常见问题：
 -

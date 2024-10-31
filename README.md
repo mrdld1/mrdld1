@@ -1,8 +1,8 @@
 # 每日大乱斗最新地址发布页
 
-官网最新地址：（更新时间：2024/10/29）
+官网最新地址：（更新时间：2024/10/31）
 -
- 每日大乱斗最新官方地址：https://mrdld4.fun
+ 每日大乱斗最新官方地址：https://mrdld5.fun
 
  每日大乱斗永久地址(需科学上网)：https://mrdld.fun
 
@@ -17,15 +17,15 @@
 
 方法3:加入 每日大乱斗Telegram公告频道:https://t.me/mrdld_com/5
 
-方法4：加入 每日大乱斗微信扣扣粉丝群：https://www.mrdld4.fun/?path=/qun.html
+方法4：加入 每日大乱斗微信扣扣粉丝群：https://www.mrdld5.fun/?path=/qun.html
 
 近期热瓜攀升版：
 -
-金华职业技术大学商学院女老师刘徐轶琛出轨男学生网红 https://www.mrdld4.fun/?path=/archives/147573/
+金华职业技术大学商学院女老师刘徐轶琛出轨男学生网红 https://www.mrdld5.fun/?path=/archives/147573/
 
-每日大赛之【丝袜开裆大赛】欢迎各大网友来评审投稿 https://www.mrdld4.fun/?path=/archives/147486/
+每日大赛之【丝袜开裆大赛】欢迎各大网友来评审投稿 https://www.mrdld5.fun/?path=/archives/147486/
 
-上海静安高颜值真实母女 40岁妈妈19岁女儿 共同服侍金主！ https://mrdld4.com/?path=/archives/147748/
+上海静安高颜值真实母女 40岁妈妈19岁女儿 共同服侍金主！ https://mrdld5.com/?path=/archives/147748/
 
 常见问题：
 -

@@ -1,6 +1,6 @@
 # 每日大乱斗最新地址发布页
 
-官网最新地址：（更新时间：2024/11/11）
+官网最新地址：（更新时间：2024/11/12）
 -
  每日大乱斗最新官方地址：https://mrdld5.fun
 
@@ -13,7 +13,7 @@
 方法1：邮箱发送任意邮件至 每日大乱斗官方邮箱可获取最新地址
 牢记官方邮箱：mrdld.fun@gmail.com
 
-方法2：关注 每日大乱斗twitter：https://x.com/mrdld1234
+方法2：关注 每日大乱斗twitter:  https://x.com/mrdld_com
 
 方法3:加入 每日大乱斗Telegram公告频道:https://t.me/mrdld_com/5
 
@@ -21,7 +21,7 @@
 
 近期热瓜攀升版：
 -
-金华职业技术大学商学院女老师刘徐轶琛出轨男学生网红 https://www.mrdld5.fun/?path=/archives/147573/
+珠海体育中心撞人事件 https://www.mrdld5.fun/?path=/archives/148998/
 
 每日大赛之【丝袜开裆大赛】欢迎各大网友来评审投稿 https://www.mrdld5.fun/?path=/archives/147486/
 

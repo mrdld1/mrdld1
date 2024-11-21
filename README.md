@@ -1,8 +1,8 @@
 # 每日大乱斗最新地址发布页
 
-官网最新地址：（更新时间：2024/11/20）
+官网最新地址：（更新时间：2024/11/21）
 -
- 每日大乱斗最新官方地址：https://ddou6.com
+ 每日大乱斗最新官方地址：https://mrdld6.fun
 
  每日大乱斗永久地址(需科学上网)：https://mrdld.fun
 
@@ -17,7 +17,7 @@
 
 方法3:加入 每日大乱斗Telegram公告频道:https://t.me/mrdld_com/5
 
-方法4：加入 每日大乱斗微信扣扣粉丝群：https://www.ddou6.com/?path=/qun.html
+方法4：加入 每日大乱斗微信扣扣粉丝群：https://www.mrdld6.fun/?path=/qun.html
 
 近期热瓜攀升版：
 -

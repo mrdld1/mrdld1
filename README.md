@@ -21,6 +21,8 @@
 
 近期热瓜攀升版：
 -
+上海绿地公司董事长张玉良丑闻 https://www.mrdld6.fun/?path=/archives/151745/
+
 吴柳芳恋爱期间出轨多人 https://www.mrdld6.fun/?path=/archives/151423/
 
 小米su7租车事件 https://www.mrdld6.fun/?path=/archives/149920/

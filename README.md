@@ -13,7 +13,7 @@
 方法1：邮箱发送任意邮件至 每日大乱斗官方邮箱可获取最新地址
 牢记官方邮箱：mrdld.fun@gmail.com
 
-方法2：关注 每日大乱斗twitter:  https://x.com/mrdld_com
+方法2：关注 每日大乱斗twitter:  https://x.com/mrdldfun
 
 方法3:加入 每日大乱斗Telegram公告频道: https://t.me/mrdld66
 
